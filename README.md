@@ -1,2 +1,1 @@
-Whatever.....
-https://store.steampowered.com/app/1275670/Outcore_Desktop_Adventure/
+Programing is like a magic: It works, but you cant really tell how.
